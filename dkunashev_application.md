@@ -2,7 +2,7 @@
 
 ### Группа: 10 - МИ - 2
 ### Электронная почта: dan_kunashev@mail.com
-### VK: https://vk.com/deker_bs
+### VK: https://vk.com/previak
 
 
 **[ НАЗВАНИЕ ПРОЕКТА ]**
