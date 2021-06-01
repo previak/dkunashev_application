@@ -1,7 +1,7 @@
-![img]https://i.imgur.com/GQsab2a.jpg[/img]
+![Imgur](https://imgur.com/GQsab2a)
 
-![img]https://i.imgur.com/h6Cb7D8.jpg[/img]
+![Imgur](https://imgur.com/h6Cb7D8)
 
-![img]https://i.imgur.com/DJu4I8t.jpg[/img]
+![Imgur](https://imgur.com/DJu4I8t)
 
-![img]https://i.imgur.com/eC8nTsj.jpg[/img]
+![Imgur](https://imgur.com/eC8nTsj)
