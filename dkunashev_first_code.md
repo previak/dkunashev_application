@@ -1,5 +1,5 @@
 ### Сделано:
 #### - Создан файл в среде разработки Unity
 
-![Снимок](https://imgur.com/LuZ1fNo)
+[Imgur](https://i.imgur.com/LuZ1fNo.jpg)
 
